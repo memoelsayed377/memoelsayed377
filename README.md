@@ -1,0 +1,4 @@
+- I’m a web and mobile apps developer
+- 2 years experience with HTML , Css, JavaScript,Python,PHP,
+- Also I have a good experience in digital marketing .
+- All my certificates are from Udacity and tech institutes .
